@@ -1,1 +1,1 @@
-# Challenge---Exquisite-corpse-
+# Challenge-Exquisite-corpse
