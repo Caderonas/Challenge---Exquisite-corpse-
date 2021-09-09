@@ -1,7 +1,7 @@
 # Challenge-Exquisite-corpse
 
-### Challenge
+### Chall
 
-## Exquisite
+## Exgfjdtquisite
 
 # Corpse
